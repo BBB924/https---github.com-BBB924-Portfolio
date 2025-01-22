@@ -5,7 +5,7 @@
 ![Image](https://github.com/user-attachments/assets/39f702ca-ce47-4a9b-ae1a-0dc366b6eed4)
 
 ### 3. About Me
-![Image](https://github.com/user-attachments/assets/02fc70f6-95f3-471d-a8f4-6f01c123ed5d)
+![Image](https://github.com/user-attachments/assets/0066926e-e004-4821-b7c5-73a92b179a70)
 
 ### 4. Skills
 ![Image](https://github.com/user-attachments/assets/a2e79f8d-5509-4992-b089-3ecda91b0682)
